@@ -9,6 +9,14 @@
 - ⚡ интересный факт: я смог написать хелоу ворд на ассемблере
 - 🤯 интересный факт 2: я не женщина
 
+##  ещё ссылОЧКИ на меня
+
+[сюрприз](https://www.youtube.com/watch?v=dQw4w9WgXcQ)<br>
+[гитхуб @wusbestGH](https://github.com/wusbestGH)<br>
+[ютаб @wusbestyt](https://www.youtube.com/@wusbestyt)<br>
+[тикитак @wusbesttiktok](https://www.tiktok.com/@wusbesttiktok)<br>
+[сроблокс @RussianBestYT](https://www.roblox.com/users/304224420/profile)
+
 <!---
 wusbestGH/wusbestGH is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
