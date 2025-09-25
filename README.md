@@ -16,7 +16,7 @@
 [гитхуб @wusbestGH](https://github.com/wusbestGH)<br>
 [ютаб @wusbestyt](https://www.youtube.com/@wusbestyt)<br>
 [тикитак @wusbesttiktok](https://www.tiktok.com/@wusbesttiktok)<br>
-[тикитак2 (сорри не готов акк)](https://www.youtube.com/watch?v=dQw4w9WgXcQ)<br>
+[тикитак2 (сорри не готов акк)](https://www.tiktok.com/@thewusbest_tt)<br>
 [сроблокс @RussianBestYT](https://www.roblox.com/users/304224420/profile)
 
 <!---
